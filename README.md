@@ -1,1 +1,1 @@
-# jack-Tamagotchi
+# jack-Tamagotchi O.O
